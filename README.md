@@ -2,7 +2,7 @@
  Hello
 
 I am **Mayuri Patil**, I am born and raised in **India**  , I did my **Masters** in **Computer Sciences**  .
-Talking about my family, it consists of 3 members including me, my husband and cute little son :blush:.
+
 
 ## My Hobbies are
 
