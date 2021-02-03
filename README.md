@@ -8,7 +8,7 @@ Talking about my family, it consists of 3 members including me, my husband and c
 
      * Playing badminton
      * Passion For Music
-     * Playing with kids
+     
 Coming to my strength ,my biggest strength is to be adaptable to any kind of situation.
 My ultimate goal is to **_Gain a New Skill_**.
 
