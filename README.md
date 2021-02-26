@@ -1,8 +1,7 @@
 ### Hi there 👋
 
 
-I am **Mayuri Patil**, I am born and raised in **India**  , I did my **Masters** in **Computer Sciences**  .
-
+I am **Mayuri Patil**, I am born and raised in **India**  
 
 ## My Hobbies are
 
